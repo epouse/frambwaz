@@ -10,7 +10,7 @@
 </p>
 
 <p align="center">
-  <i>9teen　 girlboy</i> + POC　 fr/eng
+  <i>9teen　 girl<b>boy<b></i> + POC　 fr/eng
 </p>
 
 
